@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Oaken09
+- 👋 Hi, I’m Oaken
 - 👀 I’m interested in games
 - 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate on ...
